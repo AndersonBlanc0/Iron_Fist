@@ -8,4 +8,3 @@
 (https://es.wikipedia.org/wiki/Iron_Fist_(serie_de_televisi%C3%B3n))
 ![iron_fist_kung_fu_3000.jpg](..%2F..%2F..%2F..%2FANDERS%7E1%2FAppData%2FLocal%2FTemp%2Firon_fist_kung_fu_3000.jpg)
 ![download.jpg](..%2F..%2F..%2F..%2FANDERS%7E1%2FAppData%2FLocal%2FTemp%2Fdownload.jpg)
-![](C:\Users\Anderson Blanco\Desktop\iron fist imagen.jpg)
