@@ -6,5 +6,4 @@
 ## Final de la serie
 ### Despues de haber logrado lo que queria el empieza a investigar lo que sucedio con sus padres y encuentra que el otro socio saboteo el jet para que eso pasara, pero todo esto es muchisimo mas grande de lo que pensaba y se encuentra con una mafia china ⛩️ que se hacian llamar La Mano 🏻.
 #### Yo escribi todo porque me gusta mucho la serie pero aqui les dejo un vinculo: (https://es.wikipedia.org/wiki/Iron_Fist_(serie_de_televisi%C3%B3n)
-![img.png](img.png)
-![img_1.png](img_1.png)
+![img.png](img.png) ![img_1.png](img_1.png)
